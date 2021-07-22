@@ -1,1 +1,1 @@
-# minjae705.github.io
+# https://minjae705.github.io/GitHubPages_homepagefile/
